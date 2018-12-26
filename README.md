@@ -1,1 +1,1 @@
-# Hospitality-Solutions
+# Hospitality Solutions
